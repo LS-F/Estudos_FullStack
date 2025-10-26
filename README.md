@@ -1,1 +1,5 @@
 # Estudos_FullStack
+hfaçosdvlkandvasdnvãldsfnvaldfnv~ladcnv´~asdviancvçladhv
+lkvahl~val~ksdv
+dskvnaçl~scvhbnadv
+asdvknja
